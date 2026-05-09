@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with custom Trello for macOS Tool | AI assistant + version history, the #1 tool. Includes AI assistant and version history for a smoother experience.
 
 
 
